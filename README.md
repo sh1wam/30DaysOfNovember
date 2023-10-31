@@ -6,4 +6,4 @@
 4. NNN
 5. 10 min typing
 6. No Gaming
-7. Learn Chinese 5 words daily
+7. Learn Japanese 5 words daily
